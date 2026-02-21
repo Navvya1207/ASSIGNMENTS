@@ -1,2 +1,2 @@
-# ASSIGNMENT-1
+# ASSIGNMENTS
 Navvya Bhardwaj
